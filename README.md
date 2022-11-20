@@ -1,5 +1,5 @@
 
-### "Smiling of a robot whose will to live is broken" art project (2022)
+### "Smiling of a robot whose 'will to live' is broken" art project (2022)
 
 
   <br/>   <br/>  
