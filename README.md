@@ -5,7 +5,7 @@
 
   <br/>   <br/>  
   
-On youtube :   https://youtube.com/shorts/ftzcPJZ9x2U?feature=share
+On youtube :   https://youtube.com/shorts/ftzcPJZ9x2U
    <br/>  
 ### Each work is stored in the ART folder.  
 
