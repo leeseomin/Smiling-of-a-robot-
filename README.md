@@ -2,8 +2,11 @@
 ### "Smiling of a robot whose 'will to live' is broken" art project (2022)
 
 
+
   <br/>   <br/>  
   
+On youtube :   https://youtube.com/shorts/ftzcPJZ9x2U?feature=share
+   <br/>  
 ### Each work is stored in the ART folder.  
 
 <br/>  
